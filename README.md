@@ -6,4 +6,4 @@
 - 🇧🇷 Guarulhos, SP ➡️ Franca, SP
 - ✨ 20 anos
 - 📫 giovanna.doriguetto@unesp.br
-- 💼 
+
